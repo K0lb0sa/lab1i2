@@ -1,1 +1,1 @@
-# [lab1](https://user-images.githubusercontent.com/86391922/159701798-d9596a91-0398-4006-b7e0-a804d870d299.png)
+![lab1](https://user-images.githubusercontent.com/86391922/159701878-6d012027-614a-4a11-ab33-3ae8395bf847.png)
